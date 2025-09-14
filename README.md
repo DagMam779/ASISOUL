@@ -1,2 +1,2 @@
 # ASISOUL
-Intlelligence that evolves with empathy. Technology that serves soul
+Intelligence that evolves with empathy. Technology that serves the soul
